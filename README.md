@@ -1,1 +1,1 @@
-# GitTraining
+v rucete tvoi 
